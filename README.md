@@ -1,1 +1,1 @@
-# vinnetkiinfo.com
+# vineetkiinfo.com
